@@ -1,2 +1,2 @@
 # CV
-SEX GOD
+god
