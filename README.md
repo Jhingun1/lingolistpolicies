@@ -1,4 +1,2 @@
 # CV
 god
-d
-j
